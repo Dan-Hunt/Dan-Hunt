@@ -25,6 +25,6 @@
 
 ---
 
-### 📫 Connect
+### Connect
 * **LinkedIn:** [linkedin.com/in/danhunt](https://www.linkedin.com/in/dan-hunt-7476a8271/)
 * **Email:** [danhunt310@gmail.com](mailto:danhunt310@gmail.com?subject=Graduate%20Role%20Opportunity)
